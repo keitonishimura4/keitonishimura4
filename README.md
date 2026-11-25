@@ -1,4 +1,4 @@
-# Hi, I'm Keito 👋
+# Hi, I'm K 👋
 
 **First-class architect × Generative AI engineer**
 
